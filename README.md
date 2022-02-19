@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Cebulka49
+- 👀 I’m interested in minecraft/gaming/programming
+- 🌱 I’m currently learning java (making mods)
+- 💞️ I’m looking to collaborate on making mods on minecraft (i am an beginner)
+- 📫 Cebulka#0001 on discord
